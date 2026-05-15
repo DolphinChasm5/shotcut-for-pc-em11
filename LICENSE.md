@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows updated Plugin: video-stabilization & multi-track-editing is the best Shotcut for PC | Shotcut for Windows plugin, featuring
 
 
 
